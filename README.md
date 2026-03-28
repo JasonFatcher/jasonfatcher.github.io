@@ -1,7 +1,7 @@
 App Support
 
 If you have any questions, issues, or feedback, please contact me at:
-jasonfatcher@mail.com
+jasonfatcher@gmail.com
 
 Privacy Policy
 
@@ -14,7 +14,7 @@ If you have any questions regarding privacy, feel free to contact me at the emai
 App-Support
 
 Wenn du Fragen, Probleme oder Feedback hast, kontaktiere mich bitte unter:
-jasonfatcher@mail.com
+jasonfatcher@gmail.com
 
 Datenschutzrichtlinie
 
